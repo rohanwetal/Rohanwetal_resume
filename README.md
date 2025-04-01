@@ -1,3 +1,4 @@
 # Rohanwetal_resume...
 
-![Screenshot (689)](https://github.com/user-attachments/assets/c5ff830e-a5d0-4b8f-8a8b-03adba8aa036)
+![image](https://github.com/user-attachments/assets/d04fff76-e3d5-4d49-b962-3de8c9cc31b1)
+
