@@ -1,3 +1,1 @@
-# Rohanwetal_resume...
-
 
